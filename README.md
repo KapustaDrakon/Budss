@@ -1,1 +1,1 @@
-https://kapustadrakon.github.io/budss/ - просмотр страницы
+https://kapustadrakon.github.io/Budss/ - просмотр страницы
